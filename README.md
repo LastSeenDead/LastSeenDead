@@ -31,7 +31,9 @@ Kendo ! Itsuka , Snowgrave , Audra, or wtv other name
 <img width="99" height="56" alt="e90" src="https://github.com/user-attachments/assets/9631c504-ada2-496c-8504-945c20ea65e2" />
 <img width="99" height="56" alt="f40" src="https://github.com/user-attachments/assets/5063e80b-9628-4d77-bcd2-20c8f3c2f3b5" />
 
+-----
 
+Thank you @cosplaytown !
 
 
 
