@@ -29,11 +29,23 @@ Kendo ! Itsuka , Snowgrave , Audra, or wtv other name
 <img width="99" height="56" alt="d2" src="https://github.com/user-attachments/assets/772d108f-1f19-42ca-a162-29fa153e87ab" />
 <img width="99" height="56" alt="e86" src="https://github.com/user-attachments/assets/4df877f1-0307-4014-8ef3-c94b73098b31" />
 <img width="99" height="56" alt="e90" src="https://github.com/user-attachments/assets/9631c504-ada2-496c-8504-945c20ea65e2" />
-<img width="99" height="56" alt="f40" src="https://github.com/user-attachments/assets/5063e80b-9628-4d77-bcd2-20c8f3c2f3b5" />
+<img width="99" height="56" alt="f40" src="https://github.com/user-attachments/assets/5063e80b-9628-4d77-bcd2-20c8f3c2f3b5" /><img width="100" height="56" alt="tumblr-ab85edc0cf776f5fda2c93b7c3a551fe-ce475f65-100" src="https://github.com/user-attachments/assets/bfe55d84-e070-4faa-ab7d-8adc00d2b296" /><img width="101" height="57" alt="d9f9nz8-8a1f9fa8-a6ec-489b-ace1-1e9bb917c776" src="https://github.com/user-attachments/assets/dff8f463-fe54-4a19-9285-6f09ed4b5bb6" />
+<img width="100" height="56" alt="tumblr-f5a614012f4608807cf2413a4d8ddb9d-af289642-100" src="https://github.com/user-attachments/assets/5719e2ea-70c9-4a7c-8602-14abae042a67" />
+<img width="100" height="56" alt="tumblr-bad6c20226b3e46830f5d3f14f0dc0cb-a9253054-100" src="https://github.com/user-attachments/assets/4badf5e0-c0ca-4da0-9047-50c0c58eb794" />
+<img width="99" height="56" alt="tumblr_e847d166716aa12b9b1efc00883341d2_fea9a0d2_100" src="https://github.com/user-attachments/assets/e107eb6b-7e2a-409c-adb3-2356fe776c8c" />
+<img width="99" height="56" alt="Tumblr-l-294014275566746" src="https://github.com/user-attachments/assets/86cfc529-7241-4339-8f5f-5255e1c01b9a" /><img width="99" height="56" alt="_stamp__windows95_aesthetic_by_cobrastamps_dd17dsa-fullview" src="https://github.com/user-attachments/assets/50be4fb9-16d9-4bc9-a242-032145ee14c2" />
+<img width="99" height="56" alt="6a4d2428" src="https://github.com/user-attachments/assets/c9c37225-335c-4a5e-8191-db3dc8da31f2" />
+<img width="99" height="56" alt="2c9d8c0c" src="https://github.com/user-attachments/assets/7efa4a26-b325-4517-b277-6b6d7679fe82" />
+<img width="99" height="55" alt="sipaoe" src="https://github.com/user-attachments/assets/25baec59-0134-454c-94c6-982808e51de5" />
+<img width="99" height="56" alt="tv6vew" src="https://github.com/user-attachments/assets/cea4a957-c080-420d-9505-86759ae762f9" />
+<img width="99" height="56" alt="zvjq1p" src="https://github.com/user-attachments/assets/5466595b-a7f8-4549-a30f-28ab3203c9ca" />
+<img width="99" height="56" alt="t1et78" src="https://github.com/user-attachments/assets/bca86f08-53ed-40ad-a632-2147879c8017" />
+<img width="99" height="55" alt="hwptgu" src="https://github.com/user-attachments/assets/803a7529-796f-4d94-9fff-5072f9159388" />
+<img width="99" height="56" alt="p6qacp" src="https://github.com/user-attachments/assets/8c09a4c2-6e07-4e9a-8bc6-4ff478a46179" />
 
------
 
-Thank you @cosplaytown !
+
+
 
 
 
@@ -60,9 +72,23 @@ Thank you @cosplaytown !
 <img width="150" height="20" alt="tumblr_a5b6d35bc8b1c89e64033355ccba4b79_43e1820e_250" src="https://github.com/user-attachments/assets/57fdc425-cf40-49d2-b790-b635d210003b" />
 <img width="150" height="20" alt="buddy-simulator-blinkie" src="https://github.com/user-attachments/assets/66cdedf7-b0bd-4645-957a-18155974b4d6" /><img width="150" height="20" alt="3txz54" src="https://github.com/user-attachments/assets/300ebc9a-6c50-4a0d-b381-e6dd011d030f" />
 <img width="150" height="20" alt="tumblr_fe87c1eb6b6bae9ea5d82a1b841361af_f8640dec_250" src="https://github.com/user-attachments/assets/de8a91ac-2dbe-4125-86b5-879fbd7f4bdb" /><img width="150" height="20" alt="red" src="https://github.com/user-attachments/assets/346e54a4-7465-434a-a992-573cee9e6473" /><img width="150" height="20" alt="grey" src="https://github.com/user-attachments/assets/a7b46cd8-a1d4-43ff-b7a1-16772939b92f" /><img width="150" height="20" alt="black" src="https://github.com/user-attachments/assets/99762d82-f0ed-487c-9bcb-826428955de0" /><img width="150" height="20" alt="black (1)" src="https://github.com/user-attachments/assets/f8c3552b-3a2a-46eb-b81d-3d3f1790e2b2" /><img width="150" height="20" alt="tumblr_69c8d9407a98a3dcc380c43a9292f698_036dc286_250" src="https://github.com/user-attachments/assets/e67b4d6c-f38e-4b1f-99f6-d360e7f7f809" />
-<img width="150" height="20" alt="tumblr_33df89a383a78edbade2c6d872e4ecc1_996beaea_250" src="https://github.com/user-attachments/assets/8ce7dd43-ea50-47f1-b2b3-85685a10fede" />
+<img width="150" height="20" alt="tumblr_33df89a383a78edbade2c6d872e4ecc1_996beaea_250" src="https://github.com/user-attachments/assets/8ce7dd43-ea50-47f1-b2b3-85685a10fede" /><img width="150" height="20" alt="h57" src="https://github.com/user-attachments/assets/f6a6a26a-faf7-4298-92a1-b865e12fbd3c" />
+<img width="150" height="20" alt="e24" src="https://github.com/user-attachments/assets/b91a125e-17ed-4659-9d7c-c8af36083c5f" />
+<img width="150" height="20" alt="d97" src="https://github.com/user-attachments/assets/d5d6179f-51ef-4b60-b59f-d6ab314f29c7" />
+<img width="150" height="20" alt="d22" src="https://github.com/user-attachments/assets/96233998-0957-4bfc-a10e-127bcd536f17" />
+<img width="150" height="20" alt="alwaysunderconstruction" src="https://github.com/user-attachments/assets/114e76c7-61d5-4fb5-a33a-d498c5372cc7" />
+<img width="150" height="20" alt="antisocial" src="https://github.com/user-attachments/assets/e87a2d2a-2063-4e74-bc0e-8576fc1377ff" />
+<img width="150" height="20" alt="stillyou" src="https://github.com/user-attachments/assets/de7fd2ff-03d3-416a-8873-0491a8956f55" />
+<img width="150" height="20" alt="offthehook" src="https://github.com/user-attachments/assets/75719068-3f6c-417e-b2c8-04982710325e" />
+<img width="150" height="20" alt="deepcut" src="https://github.com/user-attachments/assets/6df02691-4714-405a-a706-bff5da57453b" />
+<img width="150" height="20" alt="boa" src="https://github.com/user-attachments/assets/7c2bc69b-a603-4480-85aa-3c91b2af71d7" />
+<img width="150" height="20" alt="musicplay" src="https://github.com/user-attachments/assets/2cc08496-a7c6-4db5-95d7-94cc8cb25c62" />
+<img width="150" height="20" alt="bakspace" src="https://github.com/user-attachments/assets/c9ce7bc4-3f94-4fb8-81a4-512aa286c499" />
 
 
 
+----
+
+Thank you @cosplaytown !
 
 
