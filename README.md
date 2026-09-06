@@ -62,7 +62,29 @@ Kendo ! Itsuka , Snowgrave , Audra, or wtv other name
 <img width="99" height="57" alt="49805683d2a6074ab0b8e752524c817f001f310e" src="https://github.com/user-attachments/assets/8078a1e6-2a23-49a6-b118-a16ab31b149d" />
 <img width="99" height="56" alt="affa36302c55cf30015927be5697ce810deea22e" src="https://github.com/user-attachments/assets/d50f0227-2749-4948-90fb-cb298f9359a4" /><img width="99" height="56" alt="dggu1dw-19f43ee7-a31b-48ae-b1b6-aeb8afff90bd" src="https://github.com/user-attachments/assets/4a86fbe1-8eee-4a6d-96cf-e4a5d6a4f5cd" /><img width="99" height="56" alt="tumblr-4db97ef413c1d3b83bc878aad9255f16-8438cbb8-100" src="https://github.com/user-attachments/assets/ce43ad94-74e5-4a76-9c9b-213f14dd2204" /><img width="99" height="56" alt="on-my-bed-by-prosaix-d52ulep" src="https://github.com/user-attachments/assets/51638ad4-8512-4d31-a515-b521ea222901" />
 <img width="99" height="56" alt="dbroruc-5c476c41-9dd5-40e7-bdb0-ba8d3cb3d6ed" src="https://github.com/user-attachments/assets/93d666ba-51e3-4f07-b2a4-d9c3935d099f" />
-<img width="99" height="56" alt="dchf6dx-58ced402-ca26-4194-8b0a-aefc10ed7f5e" src="https://github.com/user-attachments/assets/df481780-76ed-4860-afbf-f97863751925" />
+<img width="99" height="56" alt="dchf6dx-58ced402-ca26-4194-8b0a-aefc10ed7f5e" src="https://github.com/user-attachments/assets/df481780-76ed-4860-afbf-f97863751925" /><img width="99" height="56" alt="tumblr_ca187d7751cac1a21e7424326f416c0e_00077af2_100" src="https://github.com/user-attachments/assets/dd52b247-7e14-448f-92fe-44edbae2445f" />
+<img width="99" height="56" alt="tumblr_c2ab4ced4cc4c070599be3056792ea31_295a4a32_100" src="https://github.com/user-attachments/assets/12d65465-c48c-435e-a8e1-dca688e4ea4b" />
+<img width="99" height="56" alt="tumblr_64432ae01b70458b2c4e3aaf878c1498_7c46949d_100" src="https://github.com/user-attachments/assets/2fc036b8-6f60-4394-9181-8d5fbe7d3a51" />
+<img width="99" height="56" alt="tumblr_59862cf26f5e997ed9b548d467882c48_78ca4c7c_250" src="https://github.com/user-attachments/assets/0c1058e6-8960-424a-a79f-e8716ab16413" />
+<img width="99" height="56" alt="tumblr_9511745d8e10b0c89ac5f2d4ac0b9d63_f750d0ca_250" src="https://github.com/user-attachments/assets/365b2f62-1c9b-4e6a-9fd8-4fb7b0044c4c" />
+<img width="99" height="58" alt="tumblr_7098b6eeaec517f49a9251c4df9015ab_7eaf6734_250" src="https://github.com/user-attachments/assets/de83fedf-9d93-44b1-99cf-3c7e84ee2cde" />
+<img width="99" height="56" alt="tumblr_79e70b96ce3786a0418fec53ea142e93_b4b8a094_250" src="https://github.com/user-attachments/assets/c48d7847-aefc-4861-82f6-c076546f07d1" /><img width="99" height="56" alt="a50" src="https://github.com/user-attachments/assets/c45ff2e3-c231-4ee2-a344-e55fce6b7afb" />
+<img width="99" height="56" alt="g30" src="https://github.com/user-attachments/assets/6f3c60c5-f4f9-4f09-ab52-a5c0c889ba10" />
+<img width="99" height="56" alt="p6" src="https://github.com/user-attachments/assets/07e14e26-e7d0-4bec-9195-727fffea49c3" />
+<img width="99" height="56" alt="tumblr_14578b74a26c2aeef37fce1cbc8b5bdd_973ac73b_100" src="https://github.com/user-attachments/assets/23a09a9e-e82b-431f-9e9a-46a54ce18b4f" />
+<img width="99" height="56" alt="tumblr_66af6e76983ac11504ebee132eccdb97_6bc83559_400" src="https://github.com/user-attachments/assets/4d61b8e7-70ed-4671-87ff-cfb56b4f09f2" />
+<img width="99" height="56" alt="tumblr_94f7aedfbc5bcb0e34c43efa337c9f57_a6f8df8f_100" src="https://github.com/user-attachments/assets/73b4170a-a284-4ddf-bd20-28cca59bbec9" />
+<img width="99" height="56" alt="tumblr_f1b556467f2de605eac850c28ba3e124_9af272b6_100" src="https://github.com/user-attachments/assets/bae1e3d2-5588-419b-8f92-c59b0502e2f6" />
+<img width="99" height="56" alt="tumblr_9d9d695a5b9c85cea3eb224d7d3e7a0d_a40d2f9e_100" src="https://github.com/user-attachments/assets/791d303c-5ef5-47a4-9b84-8af298872027" />
+<img width="99" height="55" alt="tumblr_72adf09ff6a7d3a65068a34e853080ea_209f13a8_250" src="https://github.com/user-attachments/assets/9576585c-b2bd-4e38-8659-9910bbb0d7f1" />
+<img width="99" height="57" alt="tumblr_9d4f50e0a88e3ba60d5c66d3fa9a3462_a9df0f61_250" src="https://github.com/user-attachments/assets/60da8e58-cc31-4076-bc36-2ed1aa221f2a" />
+<img width="99" height="58" alt="tumblr_6e354f3f23bca10f9c18b01254077503_9587d0c6_250" src="https://github.com/user-attachments/assets/121565f4-5e97-4cd7-9199-0439ce10665d" />
+<img width="99" height="56" alt="tumblr_5bfef89069fecec3ee1804e8d4025816_b4a1df88_100" src="https://github.com/user-attachments/assets/66e9d647-add2-488a-b140-c808bf1da78f" />
+<img width="99" height="55" alt="tumblr_6b7c4a399e5e4f410dc9069f1e4ba7ef_145379ba_100" src="https://github.com/user-attachments/assets/fdd22cf1-3c67-45df-a58c-2e91ef6964f7" />
+<img width="99" height="56" alt="tumblr_23a88c1788a7cd6d0d670f6cc54b50e8_a233c0ee_100" src="https://github.com/user-attachments/assets/5a48c875-8e13-4122-8034-37a5a084e939" />
+<img width="99" height="56" alt="tumblr_fb4fe9cc21e323f80d660b78c1abfc6f_08187d1b_100" src="https://github.com/user-attachments/assets/6afb875f-2871-4af4-a33a-fe88a3652793" /><img width="99" height="56" alt="p11" src="https://github.com/user-attachments/assets/0c697f4b-e143-4314-a979-6fb17adb01a7" />
+
+
 
 
 
@@ -115,7 +137,15 @@ Kendo ! Itsuka , Snowgrave , Audra, or wtv other name
 <img width="150" height="20" alt="fighting" src="https://github.com/user-attachments/assets/f678eade-5616-41ee-ba22-2dcd422ccc2c" />
 <img width="150" height="20" alt="a89a7b65cba8a5756ab23102913fcb817e8a1682" src="https://github.com/user-attachments/assets/04c0c729-58bb-437f-8201-b6ae934eb9ce" />
 <img width="150" height="20" alt="1dd1f9e83ebdb4d5fdc8681eb575182c4f81e5e6" src="https://github.com/user-attachments/assets/1de0e136-0e04-4030-b818-e1388fd7d11d" />
-<img width="150" height="20" alt="tumblr_3ec937cb81f70735516ca2a5e7669b59_c67cecb5_250" src="https://github.com/user-attachments/assets/538191df-89d2-453e-ade9-cbf89e120e69" />
+<img width="150" height="20" alt="tumblr_3ec937cb81f70735516ca2a5e7669b59_c67cecb5_250" src="https://github.com/user-attachments/assets/538191df-89d2-453e-ade9-cbf89e120e69" /><img width="150" height="20" alt="r27" src="https://github.com/user-attachments/assets/26bb3935-116c-4061-8d50-ff32b24ecc8a" />
+
+<img width="150" height="20" alt="p30" src="https://github.com/user-attachments/assets/0566f0bb-3148-4254-be90-0ca8dd471ef4" />
+<img width="150" height="20" alt="b23" src="https://github.com/user-attachments/assets/9b642fdf-163d-4d29-8085-b8b3df637b7e" />
+<img width="150" height="20" alt="tumblr-1d1987bc53b3109d6cfc9c9632525eb0-e0434dfd-250" src="https://github.com/user-attachments/assets/349125ff-39cf-414b-90d7-de90680c2375" />
+<img width="150" height="20" alt="tumblr_8b607e21b30983df96a6b6bad58d9d2f_9231833f_250" src="https://github.com/user-attachments/assets/6a05f901-4d26-44fd-a019-963e404acc9a" />
+<img width="150" height="20" alt="tumblr_13b790391e492e1989bfaf1f9608e835_67d1248f_250" src="https://github.com/user-attachments/assets/3d383227-b8f1-4bfd-9852-8d49a7891fd0" />
+<img width="150" height="20" alt="tumblr_f23713a8862b14ee5d0bcdc1aa75a5e8_aa1a58ee_250" src="https://github.com/user-attachments/assets/ca5a7c72-32b2-4df2-be6f-f6a32c394b04" />
+
 
 
 
