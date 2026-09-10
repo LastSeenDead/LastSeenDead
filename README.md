@@ -105,7 +105,9 @@ Kendo ! Itsuka , Snowgrave , Audra, or wtv other name
 <img width="99" height="56" alt="demondayz" src="https://github.com/user-attachments/assets/43fe991c-19a1-4526-977f-8c05d9388c6c" />
 <img width="99" height="56" alt="7e8a357b" src="https://github.com/user-attachments/assets/9eb487b6-6562-4f8c-8181-8a9c46dc35e9" />
 <img width="99" height="56" alt="tumblr_f38d317fffb3c875695bf5d71c08f161_31bd593b_100" src="https://github.com/user-attachments/assets/db195669-c857-402d-b585-aa6d47dd938c" />
-<img width="99" height="56" alt="a292ba52" src="https://github.com/user-attachments/assets/f3e2ec6e-d29e-45a7-8fa5-dd1e47350248" />
+<img width="99" height="56" alt="a292ba52" src="https://github.com/user-attachments/assets/f3e2ec6e-d29e-45a7-8fa5-dd1e47350248" /><img width="97" height="57" alt="tumblr_057cc03d6b5d11ce457b6f5ecd5cfd3b_cfcdb731_100" src="https://github.com/user-attachments/assets/d29eb0eb-61a6-48d8-b2ec-53a4de1c33ae" />
+<img width="97" height="57" alt="tumblr_ab1c6a271cff3fecbc6f2c85d123c89a_654f6d0d_100" src="https://github.com/user-attachments/assets/bd09cbff-9796-45d7-95d6-a176b01122a5" />
+
 
 
 
