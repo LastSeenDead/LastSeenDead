@@ -12,13 +12,11 @@ Kendo ! Itsuka , Snowgrave , Audra, or wtv other name
 
 - C*H Highly enc ! even w iwec in my name . I may move if there 2 many people though
 
-- Check prns page + Straw for my DNI / IWEC
+- Check prns page + Straw for my DNI / IWEC , and info about me.
 
 - Dont be shy 2 int ! I love meeting new people online !!
 
-
-
-
+- Int always welcome , unless name says otherwise.
 
 
 
