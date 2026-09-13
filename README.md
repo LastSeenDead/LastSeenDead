@@ -190,6 +190,6 @@ Kendo ! Itsuka , Snowgrave , Audra, or wtv other name
 
 ----
 
-Thank you @cosplaytown !
+Thank you @cosplaytown , @kaotown ! 
 
 
