@@ -106,7 +106,11 @@ Kendo ! Itsuka , Snowgrave , Audra, or wtv other name
 <img width="99" height="56" alt="7e8a357b" src="https://github.com/user-attachments/assets/9eb487b6-6562-4f8c-8181-8a9c46dc35e9" />
 <img width="99" height="56" alt="tumblr_f38d317fffb3c875695bf5d71c08f161_31bd593b_100" src="https://github.com/user-attachments/assets/db195669-c857-402d-b585-aa6d47dd938c" />
 <img width="99" height="56" alt="a292ba52" src="https://github.com/user-attachments/assets/f3e2ec6e-d29e-45a7-8fa5-dd1e47350248" /><img width="97" height="57" alt="tumblr_057cc03d6b5d11ce457b6f5ecd5cfd3b_cfcdb731_100" src="https://github.com/user-attachments/assets/d29eb0eb-61a6-48d8-b2ec-53a4de1c33ae" />
-<img width="97" height="57" alt="tumblr_ab1c6a271cff3fecbc6f2c85d123c89a_654f6d0d_100" src="https://github.com/user-attachments/assets/bd09cbff-9796-45d7-95d6-a176b01122a5" />
+<img width="97" height="57" alt="tumblr_ab1c6a271cff3fecbc6f2c85d123c89a_654f6d0d_100" src="https://github.com/user-attachments/assets/bd09cbff-9796-45d7-95d6-a176b01122a5" /><img width="99" height="56" alt="tumblr_pgv2zhRhfi1xy0eh3o3_100" src="https://github.com/user-attachments/assets/a33d2e29-a844-4da7-b643-a4bea3741e04" />
+<img width="97" height="53" alt="dcdls6s-9d06a66c-62d9-4cea-858a-fd5a3ed6bddf" src="https://github.com/user-attachments/assets/d214f499-4b1a-4e33-9a0f-8e830e008378" />
+<img width="97" height="58" alt="dcf0p23-41743c83-4ee8-41b2-bcf4-3b37db514d0d" src="https://github.com/user-attachments/assets/0b8815f5-b558-4738-9331-0cbf4aaad221" /><img width="99" height="57" alt="tumblr_pbtcf1EFvB1xzybrpo2_100" src="https://github.com/user-attachments/assets/5b1d6f35-8dd0-401e-8ced-ede6554bf85f" />
+
+
 
 
 
